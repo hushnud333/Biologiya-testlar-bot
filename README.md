@@ -1,1 +1,0 @@
-# Biologiya-testlar-bot
